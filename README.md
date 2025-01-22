@@ -1,2 +1,0 @@
-# KgokeDotCom
-kgoke.com
